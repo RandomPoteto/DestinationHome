@@ -11,9 +11,7 @@ Get aboard the most dangerous "Are we there yet?" trip you have ever seen and pr
 Members:
 
 Brișiț Mario-Vlad, group 311 UniBuc FMI 2025-2026;
-
 Gurzu Albert, group 311 UniBuc FMI 2025-2026;
-
 Popa Laura,  group 311 UniBuc FMI 2025-2026;
 
 
