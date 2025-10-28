@@ -9,9 +9,13 @@ Find (or craft) upgrades and consumables you will need to survive in the harsh v
 Get aboard the most dangerous "Are we there yet?" trip you have ever seen and prepare to get back home.
 
 Members:
-Brișiț Mario-Vlad, group 311 UniBuc FMI 2025-2026
-Gurzu Albert, group 311 UniBuc FMI 2025-2026
-Popa Laura,  group 311 UniBuc FMI 2025-2026
+
+Brișiț Mario-Vlad, group 311 UniBuc FMI 2025-2026;
+
+Gurzu Albert, group 311 UniBuc FMI 2025-2026;
+
+Popa Laura,  group 311 UniBuc FMI 2025-2026;
+
 
 Running instructions:
 (W.I.P.)
